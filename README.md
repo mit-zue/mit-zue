@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading
 - 🌱 I’m currently learning how to cook
 - 💞️ I’m looking to collaborate on everyone
-- 📫 How to reach me .. its depens
+- 📫 How to reach me .. its depends
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love pink
 
